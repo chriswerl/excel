@@ -9,7 +9,7 @@ Für die offene Problemstellung aus dem Kurs mit der Zufallsauswahl pro Person, 
 
 Wenn es sonst noch offene Fragen oder Unklarheiten gibt, könnt ihr euch gerne über ch.werlberger@gmail.com melden. Ich versuche auch, zeitnah zu antworten 😉
 
-Diese Seite werde ich am 22.03.2026 wieder auf privat stellen. Sichert euch bitte vorher alle Unterlagen (grüner Button Code - Download ZIP).
+Diese Seite werde ich am 22.03.2026 wieder auf privat stellen. Sichert euch bitte vorher alle Unterlagen (für den Download aller Dateien als zip: grüner Button Code - Download ZIP; um einzelne Dateien herunterzuladen gibt es nach einem Klick auf das entsprechende File rechts ein Download-Symbol "Download raw file").
 
 Ich hoffe, ihr konntet das ein oder andere aus unserem Kurs mitnehmen und wünsche euch weiterhin alles Gute!
 
